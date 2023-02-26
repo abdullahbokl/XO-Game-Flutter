@@ -4,7 +4,7 @@ XO Game
   
   Video:- 
   
-  https://drive.google.com/drive/u/0/folders/1xToa3ONJUH2h8uxAHu-DuVAtT_Bc4CTX  
+  https://drive.google.com/file/d/1iwplmv4W_tM7M46De2exE0BZYQ90mm24/view?usp=sharing
   
   
   
