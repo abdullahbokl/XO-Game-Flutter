@@ -1,6 +1,6 @@
 XO Game
-  Bloc
-  Responsive
+  Bloc,
+  Responsive,
   
   Video:- 
   
